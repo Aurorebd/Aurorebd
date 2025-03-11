@@ -1,4 +1,4 @@
-![Bannière](https://github.com/Aurorebd/Aurorebd/assets/158460553/b7a5c609-c75e-405f-a17e-24f7c321432a)
+![bannière aurore_Plan de travail 2](https://github.com/user-attachments/assets/66bafbff-629f-4c02-b88d-cc2c69676436)
 
 ### Hi there 👋
 
